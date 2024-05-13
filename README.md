@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @feortizl
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning all what I can
+- 👀 I’m interested in work harder than anyone.
+- 🌱 I’m currently learning all what I can.
 - 💞️ I’m looking to collaborate on any industry or project
 - 📫 How to reach me: feortizl@live.com
 - 😄 Pronouns: he.
